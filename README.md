@@ -2,6 +2,8 @@
 
 Data Scientist, Avid Learner, and a Loving Wife
 
+Visit my portfolio - https://sakshigupta.me
+
 
 
 <!---
